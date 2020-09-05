@@ -1,2 +1,2 @@
 # Games
-Here are some common games which you will enjoy
+Here are some common games which you will enjoy.
